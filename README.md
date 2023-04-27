@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Lagueule
 - 👀 I’m interested in informatique
-- 🌱 I’m currently learning the coding and devellopement
-- 💞️ I’m looking to collaborate on everything i want learn more 
+- 🌱 I’m currently learning the coding and devellopement and webmaster
+- 💞️ I’m looking to collaborate for everything i wouldn like learn more 
 - 📫 How to reach me here, on instagram ,facebook, twitter
 
 <!---
