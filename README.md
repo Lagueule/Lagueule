@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Lagueule i'm studying in formation, and i working with dependents old persons, I'm be managing assistant of life
+- 👋 Hi, I’m Lagueule i'm student in formation, and i working with dependents old persons, I'm managing assistant life
 - 👀 I’m interested in coding, développement, web and application creation, video-games, new technology, finally i like learning more new knowing
 - 🌱 I’m currently learning on f the coding, the developpement, web and application creation, finally I trying 
 - 💞️ I’m looking to collaborate for diffent project because i would like to have more knowing
