@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Lagueule i'm students in formationnd i work for the old person, I'm manager of assistant of life
-- 👀 I’m interested in coding, développement, web and application creation, video-game, new technology, i like learning to more new knowing
+- 👀 I’m interested in coding, développement, web and application creation, video-game, new technology, i learning to more new knowing
 - 🌱 I’m currently learning on f the coding, the developpement, web and application creation, finally I trying 
 - 💞️ I’m looking to collaborate for diffent project because i would like to have more knowing
 - 📫 How to reach me here, on instagram ,facebook, twitter
