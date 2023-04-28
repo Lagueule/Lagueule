@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @Lagueule
-- 👀 I’m interested in informatique
-- 🌱 I’m currently learning the coding and devellopement and web creation
-- 💞️ I’m looking to collaborate for everything project i would like have more learning 
+- 👋 Hi, I’m @Lagueule i'm students in formationnd i work for old-peopoles i'm manager assistant of life 
+- 👀 I’m interested in coding, développement, web and application creation, video-game, new technology, i like learning to more new knowing
+- 🌱 I’m currently learning on f the coding, the developpement, web and application creation, finally I trying 
+- 💞️ I’m looking to collaborate for diffent project because i would like to have more knowing
 - 📫 How to reach me here, on instagram ,facebook, twitter
 
 <!---
